@@ -7,8 +7,8 @@
 
  <img width="auto" height="auto" alt="IMG_2865" align="left" src="https://files.catbox.moe/wu08ur.png"/>
 <br> 
-**eddie**  *or*  andre <align="left">
-<p> im offtab often,  **w2i** at all times <br>
+eddie  or  andre <align="left">
+<p> im offtab often,  w2i at all times <br>
 
  <p align="right"><img src="https://files.catbox.moe/gp3lvw.png" width="280" height="auto" align="right"></img></a> <br>
 
