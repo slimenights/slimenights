@@ -5,7 +5,7 @@
 
 ㅤㅤ⊹₊ ︶︶︶﹒ㅤ﹒ ︶︶︶ ₊˚⊹
 
-[**atabook**](https://slime.atabook.org/)ㅤㅤ[rentry](https://rentry.co/slimenights)ㅤㅤ[prns](https://en.pronouns.page/)ㅤㅤ
+[**atabook**](https://slimenights.atabook.org/)ㅤㅤ[rentry](https://rentry.co/slimenights)ㅤㅤ[prns](https://en.pronouns.page/)ㅤㅤ
 
  <img width="auto" height="auto" alt="IMG_2865" align="left" src="https://files.catbox.moe/wu08ur.png"/>
 <br> 
