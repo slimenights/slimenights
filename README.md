@@ -1,16 +1,16 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**slimenights/slimenights** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<br>![](https://komarev.com/ghpvc/?username=slimenights&color=e0b98b&style=plastic&label=📖)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<img width="auto" height="auto" alt="IMG_2865" src="https://files.catbox.moe/xsffyf.png"/>
+<br>
+
+[![beep](https://spotify-github-profile.kittinanx.com/api/view?uid=31fgvklzd4jpgqgaoqzmn44y2lsy&cover_image=true&theme=natemoo-re&show_offline=true&background_color=4b4949&interchange=false&bar_color=2a40ea&bar_color_cover=false)](https://spotify-github-profile.shinonakito.com/api/view?uid=31fgvklzd4jpgqgaoqzmn44y2lsy&redirect=true)
+
+ 
+ wip
+<br><sub>  multishipper ok?⠀⠀</sub>
+
+</p>
