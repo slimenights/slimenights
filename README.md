@@ -9,7 +9,7 @@
 
  <img width="auto" height="auto" alt="IMG_2865" align="center" src="https://files.catbox.moe/yz51y6.png"/>
 <br> 
-eddie  or  andre <align="left">
+null  or  eddie <align="left">
 <p> im offtab often,  w2i at all times <br>
 <sub> ac hapuro3_ <p align=right>
 
